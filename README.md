@@ -1,5 +1,7 @@
 <h6 align="center">
-THE Albert Wesker
+THE husband of wesker
+<h6 align="center">
+non-sharing yume
 
 <h6 align="center">
 <img src="https://komarev.com/ghpvc/?username=lumberdean&color=795548&label=🔪">

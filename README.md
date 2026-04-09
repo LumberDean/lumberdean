@@ -4,7 +4,7 @@ THE MURR IDC!!
 James Murray Luvr
 
 <h6 align="center">
-<img src="https://komarev.com/ghpvc/?username=lumberdean&color=795548&label=🔪">
+<img src="https://komarev.com/ghpvc/?username=lumberdean&color=795548&label=🤡">
 </p>
   
 <h6 align="center">

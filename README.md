@@ -3,10 +3,7 @@
 <img src="https://komarev.com/ghpvc/?username=lumberdean&color=795548&label=🤡">
 </p>
   <h6 align="center">
-James Murray Luvr
-  
-<h6 align="center">
-"Like a BAWWSE"
+"Like a bawsee!"
   
   <h6 align="center">
 <img width="50" height="75" alt="bg,f8f8f8-flat,750x,075,f-pad,750x1000,f8f8f8-Photoroom" src="https://github.com/user-attachments/assets/d03c5155-ee29-4519-8c92-fbdd317452dc" />

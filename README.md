@@ -26,4 +26,8 @@ if u dont like me then fuck off i dont like u either
 </p>
 
 
+<h6 align="center">
+  <img width="100" height="304" alt="ohok" src="https://github.com/user-attachments/assets/3356c434-0d02-473c-8718-e8264840be0c" />
+  <h6 align="center">
+  hes coming for u
 

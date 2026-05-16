@@ -11,7 +11,7 @@
 <h6 align="center">
 me and gang
   <h6 align="center">
-  Akira, Madz, Jill <3!!!
+  Akira, Me, Madz, & Jill !
   <h6 align="center">
 <img width="480" height="270" alt="cb509abb47b122d4c6a7a01d8a1c03ef" src="https://github.com/user-attachments/assets/161b0d03-9550-43af-99d9-4a11635eda43" />          
 
